@@ -1,1 +1,0 @@
-# vasilii-guide.github.io
